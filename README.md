@@ -231,4 +231,4 @@ Metal Slug 2 is available as a full free version, providing players with all fea
 Don't miss out on the action—**download Metal Slug 2 free today** and start your adventure!
 
 ---
-**Last updated:** 2026-09-24 19:44:52 UTC
+**Last updated:** 2026-09-24 22:57:49 UTC
